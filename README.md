@@ -1,2 +1,2 @@
 # communitywajahat
-- Md wajahat says that this community is amazing
+- Md wajahat says this community is amazing
